@@ -1,3 +1,3 @@
-Click the fish on my portfolio page
+Click the fish on my website
 
 https://connormorgan.ca
